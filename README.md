@@ -1,5 +1,5 @@
 # About
-All you need to know!
+
 # ❗All you need to know...❗ <br/>
 👨‍🦱Hi, my name is Abbas Agha Jafri  
 🌍I am from Lucknow, India.  
